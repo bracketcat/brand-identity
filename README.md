@@ -1,1 +1,1 @@
-# Welcome to Brecketcat's Brand Identity Documentation
+# Welcome to BrecketCat's Brand Identity Documentation
